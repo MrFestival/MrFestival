@@ -17,7 +17,7 @@
 </p>
 
   <p align="center">   
-$\color{#da8859}{\textbf{Hello!!! My name's Emil (or Joker) I'm 16 agender and aroace!! I'm also a MASSIVE MadaraP was that obvious!!}}$
+$\color{#da8859}{\textbf{Hello!!! My name's Emil (or Joker) I'm 17 agender and aroace!! I'm also a MASSIVE MadaraP was that obvious!!}}$
 </p>
  <p align="center">   
 $\color{#da8859}{\textbf{I like SO many things (over 120 things!!) but currently my fixations are Enstars, Honkai Star Rail, and Project Moon!!}}$
